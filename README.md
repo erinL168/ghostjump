@@ -13,7 +13,7 @@ The goddess' eyes narrowed, "Who else but the magnificent being before you? Knee
 [...]
 
 
-In short, you, Bartholemew VI called the goddess a fat retard and demanded your mother because you needed her to change your diaper. Thus, the goddess assigned your punishment to a random Reddit user, and thus ended here.
+In short, you, Bartholemew VI called the goddess a fat retard and demanded your mother because you needed her to change your diaper. Thus, the goddess assigned your punishment to a random Reddit user and thus ended up in this situation.
 
 
 ![image](https://user-images.githubusercontent.com/57912076/232324676-fc3562f0-998c-4f26-ae69-c8800ca77a20.png)
